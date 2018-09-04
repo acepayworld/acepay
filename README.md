@@ -1,4 +1,5 @@
 # ACEPAY Wallet
+![alt text](https://www.acepay.biz/wp-content/uploads/2018/07/AcePay.png)
 
 ACEPAY is a Digital Asset based Decentralized Currency Token backed by Waves Blockchain Technology. 
 
