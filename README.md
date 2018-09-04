@@ -8,4 +8,9 @@ ACEPAY has a Total Supply of 1,000,000,000 ACEPAY with Non-Re Issuable Tokens. A
 
 Our goal at ACEPAY is to provide businesses with the best possible opportunities for any business to succeed, and it is the passion for what we do that allows us to garner such positive results. The ACEPAY team is what happens when talents and hobbies become careers—we genuinely love what we do, and it shows in our work. If you’re passionate about your business’s success, you’ve come to the right place. Invest in and with ACEPAY!
 
-For more information please visit: https://www.acepay.biz/
+For more information please visit Official Website: https://www.acepay.biz/
+
+Trade on ACEDEX: https://acedex.world/index.html 
+Crypto Trade at: https://cryptohub.online/market/ACEPAY/
+Upcomming Crypto Trade at BiteBTC: https://bitebtc.com/trade
+ACEPAY Market Info: https://coinlib.io/coin/ACEPAY/ACEPAY
